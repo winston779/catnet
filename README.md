@@ -1,6 +1,6 @@
 # catnet官网最新地址
 
-最新地址：[dash.catnet.uk](https://dash.catnet.uk/#/register?code=yZh6xMuX)
+最新地址：[www.58catnet.com](https://www.58catnet.com/#/register?code=yZh6xMuX)
 
 ## 简介
 
