@@ -1,6 +1,6 @@
 # catnet官网最新地址
 
-最新地址：[catnetpro.com](https://v1.catnetpro.com/#/register?code=yZh6xMuX)
+最新地址：[catnet02.xyz](https://02071514.catnet02.xyz/#/register?code=yZh6xMuX)
 
 ## 简介
 
