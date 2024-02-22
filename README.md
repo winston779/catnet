@@ -1,4 +1,4 @@
-# catnet官网最新地址
+# catnet机场官网地址
 
 最新地址：[catnet02.xyz](https://02071514.catnet02.xyz/#/register?code=yZh6xMuX)
 
