@@ -1,6 +1,6 @@
 # catnet机场官网地址
 
-最新地址：[catnet001.cloud](https://0318.catnet001.cloud/#/register?code=yZh6xMuX)
+最新地址：[catnet001.cloud](https://0530.catnet002.cloud/#/register?code=yZh6xMuX)
 
 ## 简介
 
