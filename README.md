@@ -1,6 +1,6 @@
 # catnet机场官网地址
 
-最新地址：[catnet001.cloud](https://0721.catnet1autoa.top/#/register?code=yZh6xMuX)
+最新地址：[catnet001.cloud](https://0902.catnet01-c6ti90mq.top/#/register?code=yZh6xMuX)
 
 ## 简介
 
